@@ -1,5 +1,5 @@
 # arthay-My real is name Artyom.
-I am creative writer and translator.
+I am a creative writer and translator.
 Also my books of poetry and plays have beenpublished In the USA and Holland. 
 I've been working as a playwrigt 
 of improvisations at Chicago Boom (Amsterdam)
